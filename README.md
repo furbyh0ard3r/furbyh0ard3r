@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @furbyh0ard3r
+- 👀 I’m interested in AI
+- 🌱 I’m currently learning on decentralised AI as well as generative AI projects
+- 📫 How to reach me via pigeon
+- I miss Windows 95
